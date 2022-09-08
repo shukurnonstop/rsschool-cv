@@ -1,4 +1,4 @@
-
+![image](cvphoto.jpg)
 ## Shukur Matibragimov
 
 ### Junior Frontend-developer
