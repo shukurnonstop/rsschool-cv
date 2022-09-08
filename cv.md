@@ -60,4 +60,4 @@ Bachelor in jurisprudence. University of HIGHER SCHOOL OF ECONOMICS (Nizhny Novg
 - Russian (fluent)
 - English (fluent)
 
-> Dreams don't work unless you do - John C. Maxwell
+> Dreams don't work unless you do - John C.Maxwell
