@@ -7,8 +7,8 @@
 
 - Discord - @shukur
 - Telegram - @shukurnonstop
-- Phone - +79677144435
 - Email - matibragimov@mail.ru
+- Phone - +79677144435
 
 ### About myself
 
